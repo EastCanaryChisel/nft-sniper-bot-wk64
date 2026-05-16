@@ -1,4 +1,4 @@
-# 
+# high-frequency nft sniper bot | floor-price-tracking + whitelist-bypass offers the most advanced nft sniper bot, with floor-price-tracking and whitelist-bypass. Ideal for
 
 
 
